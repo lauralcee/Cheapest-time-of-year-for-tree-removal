@@ -1,1 +1,3 @@
-# Cheapest-time-of-year-for-tree-removal
+# Cheapest Time Of Year For Tree Removal
+February and March are statistically the [Cheapest time of year for tree removal](https://www.aaatreeserviceny.com/the-cheapest-time-of-year-for-tree-cutting-cost/)—as they are otherwise known as “dormant season” for trees. During the winter the leaves have fallen from the trees making it easier for a tree service to cut down the tree safely and quickly.
+The cost of tree felling will depend on the size, condition and placement of the tree, with typical price for a tree surgeon ranging between £400 – £3,000. If caught early, your tree may only need trimming or pruning. Costs for tree trimming range between £100 – £500 depending on size and placement.
